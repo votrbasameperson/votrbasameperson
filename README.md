@@ -21,3 +21,5 @@ h
 
 dry. keep a conversation i love talking
 
+bro tfc fans pls dont talk to me i HATE YOU GUYS
+
