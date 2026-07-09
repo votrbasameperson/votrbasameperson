@@ -19,3 +19,5 @@ h
 
 <img width="144" height="102" alt="Screenshot 2026-07-07 234058" src="https://github.com/user-attachments/assets/68e4d7d1-91da-4949-af9c-5d9c2f9dd75d" /> play coy
 
+dry. keep a conversation i love talking
+
