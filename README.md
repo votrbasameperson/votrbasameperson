@@ -24,4 +24,6 @@ regretevator
 
 may be a haft disgusting person ig dont know
 
+ouu shi i'm going to hell
+
 ok goodbye never editing this until i do something inhuman #HEALING.
