@@ -19,4 +19,5 @@ regretevator
 
 <img width="735" height="777" alt="Mikita got 37 seconds of happiness 🥹" src="https://github.com/user-attachments/assets/6b14f2e4-6d37-47e9-aa74-c4aeaaf02542" />
 
-fire emoij
+
+sometimes mute i guess😮
