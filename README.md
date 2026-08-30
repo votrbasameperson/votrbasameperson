@@ -17,4 +17,6 @@ regretevator
 sometimes mute i guess👽
 
 <img width="736" height="711" alt="maybe we&#39;re all a little evil shadow skull" src="https://github.com/user-attachments/assets/389e87c3-e9b9-416e-aa07-e01dc4ed4142" /> me guys at 3 am
+<img width="736" height="716" alt="download (10)" src="https://github.com/user-attachments/assets/e209227c-489a-4ea8-8f31-4a3912ef46c8" /> also me at 1 pm
+
 
