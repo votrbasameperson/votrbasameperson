@@ -3,3 +3,6 @@
 
 
 
+
+
+310: ΩΣPx0(2^18×5^18)p*k*k*k — 3.343 quindecillion years (3.343 × 10^48 years).
