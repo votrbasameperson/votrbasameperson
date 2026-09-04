@@ -23,4 +23,7 @@
 
    :trollface:
 
+   <img width="338" height="196" alt="Screenshot 2026-09-04 104954" src="https://github.com/user-attachments/assets/8c3a2612-a578-4ab2-bf9d-b71f52330d82" />
 
+
+i love google 😢
