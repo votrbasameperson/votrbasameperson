@@ -27,3 +27,6 @@
 
 
 i love google 😢
+
+<img width="324" height="150" alt="Screenshot 2026-09-04 105623" src="https://github.com/user-attachments/assets/44b80b95-caa4-4e85-a1d0-45f7f0e5f314" /> AWAWAWAWW🤽🤽
+
