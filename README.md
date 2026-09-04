@@ -86,4 +86,9 @@ $$\color{white}{\text{this took long😠 more of these thingy's}}$$
 <img width="135" height="135" alt="921197298819380775 (1)" src="https://github.com/user-attachments/assets/c50a7649-6e75-4de9-a083-f3523fa56bd9" />
 <img width="176" height="137" alt="Randal (1)" src="https://github.com/user-attachments/assets/d69262cd-f9fd-4264-86d3-666e98f1d7e8" />
 
+
+
+https://github.com/user-attachments/assets/da3f2a28-5d67-4bcd-9b9f-b6f3b58ea9f9
+
 $$\color{black}{\text{gudbye😢}}$$
+
